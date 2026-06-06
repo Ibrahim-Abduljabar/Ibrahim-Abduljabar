@@ -13,10 +13,8 @@ Professional AI & Micro-SaaS Developer based in Makkah, Saudi Arabia. Focused on
 
 ---
 
-### Contact & Enterprise Inquiries
+### Contact & Enterprise Inquiries:
 
-For project acquisitions, SaaS purchasing, or professional collaboration, contact me directly via WhatsApp:
-
-* **WhatsApp:** [+966531646808](https://wa.me)
+* 
 * **Location:** Makkah, Saudi Arabia
 *
